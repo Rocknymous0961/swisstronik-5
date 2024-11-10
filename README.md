@@ -1,1 +1,0 @@
-# swisstronik-5
